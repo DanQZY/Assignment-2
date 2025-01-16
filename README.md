@@ -1,4 +1,4 @@
 # Assignment 2
 TIS (Technology Information System) 
 
-Assignment 2 is a video or vlog based on our industry visit at UTM Digital
+Assignment 2 is a VIDEO or VLOG based on our industry visit at UTM Digital
