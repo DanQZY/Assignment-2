@@ -9,7 +9,9 @@ here is the link: https://www.youtube.com/watch?v=ibmbXXh5H2E
 
 *or you can click the picture for viewing video
 
-Refection :
+
+
+Reflection on Assignment 2 (VIDEO/VLOG on industry visit 1):
 
 This visit made me appreciate and realize how much effort UTM puts into using technology to benefit students and staff. It also encouraged me to learn more about digital tools and how I can use them to succeed in my studies and future job.
 
